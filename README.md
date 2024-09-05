@@ -27,3 +27,7 @@ RESIDENTevil4rdepncaj07<br />
 UFGCRTOMw07<br />
 - Resident Evil 4
 ***
+devilmaycry5deluxe1<br />
+DevilmayCry58907$57<br />
+- Devil May Cry
+***
