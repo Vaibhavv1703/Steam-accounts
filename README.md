@@ -23,10 +23,6 @@ amarzilic01<br />
 asd0928162430zaq<br />
 - The Elder Scrolls V: Skyrim
 ***
-RESIDENTevil4rdepncaj07<br />
-UFGCRTOMw07<br />
-- Resident Evil 4
-***
 devilmaycry5deluxe1<br />
 DevilmayCry58907$57<br />
 - Devil May Cry
